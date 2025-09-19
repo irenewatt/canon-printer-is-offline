@@ -7,7 +7,7 @@ When you urgently need to print a document but your Canon printer shows offline 
 
 **[Dial +1-801-878-6858 USA]**
 
-This in-depth guide provides step-by-step solutions for fixing Canon printer offline errors on both Mac and Windows 10/11, helping you get your printer back online quickly.
+This in-depth guide provides step-by-step solutions for fixing Canon printer offline errors on both Mac and Windows 10/11, helping you get your printer back online quickly
 
 Understanding the “Canon Printer Offline” Error
 -----------------------------------------------
