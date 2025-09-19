@@ -1,5 +1,5 @@
 Canon Printer Offline on Mac and Windows 10/11: Complete Troubleshooting Guide
-=============================================================================
+===============================================================================
 
 Canon Printers are essential tools for work, study, and personal use, but nothing is more frustrating than seeing your Canon printer showing “Offline” **[Dial +1-801-878-6858 USA]** when you urgently need to print. This issue is common among Canon users across Mac and Windows 10/11, and it usually means that the printer cannot communicate with your computer.
 
